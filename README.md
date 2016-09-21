@@ -60,12 +60,12 @@
 81. 追跡: http://tieba.baidu.com/p/4599258329
 82. 名为爱的福音: http://tieba.baidu.com/p/4599959731
 83. 对答: http://tieba.baidu.com/p/4599974252
-84. 只是那样而已的故事: http://tieba.baidu.com/p/4601342829
-幕間 竜車での一幕: http://tieba.baidu.com/p/4512597303 <br />
-断章 菜月・雷姆: http://tieba.baidu.com/p/4451132236 <br />
-幕間 我開動了: http://tieba.baidu.com/p/4515694686 <br />
-幕間 それぞれの、誓い: http://tieba.baidu.com/p/4578723987 <br />
-番外編 王様: http://tieba.baidu.com/p/4504104385a <br />
+84. 只是那样而已的故事: http://tieba.baidu.com/p/4601342829<br />
+幕間 竜車での一幕: http://tieba.baidu.com/p/4512597303<br />
+断章 菜月・雷姆: http://tieba.baidu.com/p/4451132236<br />
+幕間 我開動了: http://tieba.baidu.com/p/4515694686<br />
+幕間 それぞれの、誓い: http://tieba.baidu.com/p/4578723987<br />
+番外編 王様: http://tieba.baidu.com/p/4504104385a<br />
 
 
 ###第四章		永远的契约
@@ -139,8 +139,8 @@
 68. 死的味道: http://tieba.baidu.com/p/4766471041
 69. 骗子: http://tieba.baidu.com/p/4740195812
 70. 地狱的更深处: http://tieba.baidu.com/p/4757716722
-71. 『Ending List』: http://tieba.baidu.com/p/4775749112
-幕间 茶会: http://tieba.baidu.com/p/4788213909 <br />
+71. 『Ending List』: http://tieba.baidu.com/p/4775749112<br />
+幕间 茶会: http://tieba.baidu.com/p/4788213909
 72. 『BADEND 1、5、11』: http://tieba.baidu.com/p/4788213909
 73. 软弱的所在之处: http://tieba.baidu.com/p/4705206392
 74. 魔女的企图与提案: http://tieba.baidu.com/p/4705211329
@@ -149,7 +149,7 @@
 77. 孤身一人的……: http://tieba.baidu.com/p/4628053295
 78. 欲哭的声音: http://tieba.baidu.com/p/4629726365
 79. 梦的终结: http://tieba.baidu.com/p/4631006740
-幕間 宾客散去: http://tieba.baidu.com/p/4642203635 <br />
+幕間 宾客散去: http://tieba.baidu.com/p/4642203635<br />
 80. ざらついた舌: http://tieba.baidu.com/p/4673809891
 81. 光明: http://tieba.baidu.com/p/4713192511
 82. 尔虞我诈: http://tieba.baidu.com/p/4713376698
@@ -158,7 +158,7 @@
 85. 用话语、用心意、用拳头: http://tieba.baidu.com/p/4722054250
 86. 无视胜算: http://tieba.baidu.com/p/4725181770
 87. 鬼在外，两个小丑在内: http://tieba.baidu.com/p/4725878618
-リゼロEX 鬼も幸福も: http://tieba.baidu.com/p/4492569166 <br />
+リゼロEX 鬼も幸福も: http://tieba.baidu.com/p/4492569166<br />
 88. 卡菲尔的思绪: http://tieba.baidu.com/p/4727689867
 89. 雪之记忆: http://tieba.baidu.com/p/4728939197
 90. —对不起: http://tieba.baidu.com/p/4730160919
@@ -194,10 +194,10 @@
 126. 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768
 128. 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218
 129. ——选我吧: http://tieba.baidu.com/p/4612351520
-幕间 エミリア陣営・魔人・精霊・精霊使い: http://tieba.baidu.com/p/4779244674?pid=97731475961 <br />
-番外編 ①『ある姉妹の関係』: http://tieba.baidu.com/p/4781728579?pn=1 <br />
-番外編 ②『幼い魂と見守る者』: http://tieba.baidu.com/p/4784669815?pid=97918433654&cid=0#97918433654 <br />
-番外篇 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115 <br />
+幕间 エミリア陣営・魔人・精霊・精霊使い: http://tieba.baidu.com/p/4779244674?pid=97731475961<br />
+番外編 ①『ある姉妹の関係』: http://tieba.baidu.com/p/4781728579?pn=1<br />
+番外編 ②『幼い魂と見守る者』: http://tieba.baidu.com/p/4784669815?pid=97918433654&cid=0#97918433654<br />
+番外篇 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
 
 
 ###第五章		刻画历史的群星
@@ -216,8 +216,8 @@
 6. ユークリウスの銘: http://tieba.baidu.com/p/4523232167
 7. 以沙海为目标: http://tieba.baidu.com/p/4760295505
 8. 砂丘の洗礼: http://tieba.baidu.com/p/4767579505
-リゼロEX 菜月·利格鲁: http://tieba.baidu.com/p/4592928685 <br />
-リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536 <br />
+リゼロEX 菜月·利格鲁: http://tieba.baidu.com/p/4592928685<br />
+リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536<br >
 
 
 ###符号:
