@@ -1,10 +1,10 @@
-日文WEB版生肉链接	http://ncode.syosetu.com/n2267be/
-若有意愿翻译的人，欢迎加QQ群417670611
+#日文WEB版生肉链接	http://ncode.syosetu.com/n2267be/
+##若有意愿翻译的人，欢迎加QQ群417670611
 
-<第一章		怒涛般的第一天>
+###<第一章		怒涛般的第一天>
 	序、1~17 http://tieba.baidu.com/p/3437954710
 
-<第二章		动荡的一周>
+###<第二章		动荡的一周>
 	29 菜月昴的重新開始: http://tieba.baidu.com/p/4107373599
 	30 菜月昴的丑態: http://tieba.baidu.com/p/4108558959
 	31 小丑的慟哭: http://tieba.baidu.com/p/4120477339
@@ -23,7 +23,7 @@
 	44 絕望的利用方式: http://tieba.baidu.com/p/4448241626
 	45 餘香的效果: http://tieba.baidu.com/p/4530060763
 
-<第三章		再次来到王都>
+###<第三章		再次来到王都>
 	1 安稳的早上: http://tieba.baidu.com/p/3950761711
 	2 佣人们的茶话: http://tieba.baidu.com/p/3989194884
 	3 王都旅行计画: http://tieba.baidu.com/p/4009917606
@@ -64,7 +64,7 @@
 	幕間 それぞれの、誓い: http://tieba.baidu.com/p/4578723987
 	番外編 王様: http://tieba.baidu.com/p/4504104385
 	
-<第四章		永远的契约>
+###<第四章		永远的契约>
 	1~11 http://tieba.baidu.com/p/4472374288
 		1 帰り着いた場所で: 8L
 		2 罵倒と感謝: 115L
@@ -197,14 +197,14 @@
 	番外編 ②『幼い魂と見守る者』: http://tieba.baidu.com/p/4784669815?pid=97918433654&cid=0#97918433654
 	番外篇 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115
 
-<第五章		刻画历史的群星>
+###<第五章		刻画历史的群星>
 	1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 
 	リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105
 	リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183
 	73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401
 	リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175
 
-<第六章		记忆的回廊>
+###<第六章		记忆的回廊>
 	1 龙车归途路: http://tieba.baidu.com/p/4726164874
 	2 他相应的款待: http://tieba.baidu.com/p/4728979724
 	3 少女的牢笼: http://tieba.baidu.com/p/4736186036
@@ -215,5 +215,5 @@
 	リゼロEX 菜月·利格鲁: http://tieba.baidu.com/p/4592928685
 	リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536
 
-符号:
+###符号:
 <FIXME> 待修正
