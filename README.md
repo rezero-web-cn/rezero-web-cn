@@ -34,19 +34,19 @@
 * 幕間 騎士たちの思惑: http://tieba.baidu.com/p/4611290014
 41. 幼稚的交涉: http://tieba.baidu.com/p/4379244403
 42. 決裂之夜: http://tieba.baidu.com/p/4387728409
-43. 豚の欲望: http://tieba.baidu.com/p/4397474780?pid=85270894794#85270894794
-44. 王都出立と再会: http://tieba.baidu.com/p/4397474780?pid=86125177237#86125177237
-45. 遭遇: http://tieba.baidu.com/p/4397474780?pid=92377441915#92377441915
+43. 豚の欲望: http://tieba.baidu.com/p/4397474780?see_lz=1&pid=85270894794#85270894794
+44. 王都出立と再会: http://tieba.baidu.com/p/4397474780?see_lz=1&pid=86125177237#86125177237
+45. 遭遇: http://tieba.baidu.com/p/4397474780?see_lz=1&pid=92377441915#92377441915
 61. 梅瑟斯领地へ街道: http://tieba.baidu.com/p/4488761366
 62. 過去と未来の清算: http://tieba.baidu.com/p/4503870142
 63. 怠惰一閃: http://tieba.baidu.com/p/4513403414
 64. 魔女教狩りの顛末: http://tieba.baidu.com/p/4526880526
 65. 怠惰的后果: http://tieba.baidu.com/p/4535702457
-66. ――戦え: http://tieba.baidu.com/p/4531214202?pid=89580118548#89580118548
-67. 精灵骑士: http://tieba.baidu.com/p/4531214202?pid=89838809054#89838809054
-68. 擒拿怠惰；第一战线: http://tieba.baidu.com/p/4531214202?pid=90149631513#90149631513
-69. 时光的碎片: http://tieba.baidu.com/p/4531214202?pid=90358568814#90358568814
-70. 回归的意义: http://tieba.baidu.com/p/4531214202?pid=90529658939#90529658939
+66. ――戦え: http://tieba.baidu.com/p/4531214202?see_lz=1&pid=89580118548#89580118548
+67. 精灵骑士: http://tieba.baidu.com/p/4531214202?see_lz=1&pid=89838809054#89838809054
+68. 擒拿怠惰；第一战线: http://tieba.baidu.com/p/4531214202?see_lz=1&pid=90149631513#90149631513
+69. 时光的碎片: http://tieba.baidu.com/p/4531214202?see_lz=1&pid=90358568814#90358568814
+70. 回归的意义: http://tieba.baidu.com/p/4531214202?see_lz=1&pid=90529658939#90529658939
 71. 禁书库的少女: http://tieba.baidu.com/p/4572625777
 72. 不理解和理解: http://tieba.baidu.com/p/4576802562
 73. 悪辣なる怠惰: http://tieba.baidu.com/p/4584051971
