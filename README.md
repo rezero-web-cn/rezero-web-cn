@@ -136,7 +136,7 @@
 65. 雪中的热情: http://tieba.baidu.com/p/4620290298
 66. 赤色的雪景: http://tieba.baidu.com/p/4726751429
 67. 魔人: http://tieba.baidu.com/p/4722163693
-68. 死的味道: http://tieba.baidu.com/p/4766471041share=9105&fr=share
+68. 死的味道: http://tieba.baidu.com/p/4766471041
 69. 骗子: http://tieba.baidu.com/p/4740195812
 70. 地狱的更深处: http://tieba.baidu.com/p/4757716722
 71. 『Ending List』: http://tieba.baidu.com/p/4775749112
@@ -175,22 +175,22 @@
 101. θ其一: http://tieba.baidu.com/p/4748687220
 102. 记忆中没有的回忆: http://tieba.baidu.com/p/4751031565
 103. 圣域的起始与崩坏的开端: http://tieba.baidu.com/p/4752723405
-104. θ其二: http://tieba.baidu.com/p/4754256869?share=9105&fr=share
+104. θ其二: http://tieba.baidu.com/p/4754256869
 105. 旅行商人的陷阱: http://tieba.baidu.com/p/4751041968
-106. 奥托·斯温: http://tieba.baidu.com/p/4752323598?share=9105&fr=share
+106. 奥托·斯温: http://tieba.baidu.com/p/4752323598
 107. 最后的陷阱和: http://tieba.baidu.com/p/4757513589
 108. 只有时机好的男人: http://tieba.baidu.com/p/4763430959?pn=1
 109. 错误的选择: http://tieba.baidu.com/p/4758315159
-110. 信じる理由: http://tieba.baidu.com/p/4779047325?share=9105&fr=share
+110. 信じる理由: http://tieba.baidu.com/p/4779047325
 111. 卡菲尔的结界: http://tieba.baidu.com/p/4759215767
 112. 拒绝软弱的本能: http://tieba.baidu.com/p/4759224439
 114. 将谎言化为祈愿: http://tieba.baidu.com/p/4762482470
 115. 青梅竹马的女人面前抬不起头: http://tieba.baidu.com/p/4780619949
-117. Love Letter http://tieba.baidu.com/p/4775076619?share=9105&fr=share
+117. Love Letter http://tieba.baidu.com/p/4775076619
 118. 平家星笑的日子: http://tieba.baidu.com/p/4731021218
 119. 现在也，过去也，不变的爱: http://tieba.baidu.com/p/4740182085
 120. 艾利奥尔大森林的永久冻土: http://tieba.baidu.com/p/4743585559
-122. 咆哮的再會: http://tieba.baidu.com/p/4764926301?share=9105&fr=share
+122. 咆哮的再會: http://tieba.baidu.com/p/4764926301
 126. 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768
 128. 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218
 129. ——选我吧: http://tieba.baidu.com/p/4612351520
