@@ -30,7 +30,7 @@
 2. 佣人们的茶话: http://tieba.baidu.com/p/3989194884
 3. 王都旅行计画: http://tieba.baidu.com/p/4009917606
 4. 旅行出発前途多難: http://tieba.baidu.com/p/4464992859
-24. 決闘の顛末: http://tieba.baidu.com/p/4644477730
+24. 決闘の顛末: http://tieba.baidu.com/p/4644477730<br />
 幕间 騎士たちの思惑: http://tieba.baidu.com/p/4611290014
 41. 幼稚的交涉: http://tieba.baidu.com/p/4379244403
 42. 決裂之夜: http://tieba.baidu.com/p/4387728409
