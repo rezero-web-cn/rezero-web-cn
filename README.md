@@ -1,11 +1,11 @@
 #日文WEB版生肉链接	http://ncode.syosetu.com/n2267be/
 ##若有意愿翻译的人，欢迎加QQ群417670611
 
-###**第一章		怒涛般的第一天**
+#**第一章		怒涛般的第一天**
  序、1~17: http://tieba.baidu.com/p/3437954710
 
 
-###**第二章		动荡的一周**
+#**第二章		动荡的一周**
  29 菜月昴的重新開始: http://tieba.baidu.com/p/4107373599<br />
  30 菜月昴的丑態: http://tieba.baidu.com/p/4108558959<br />
  31 小丑的慟哭: http://tieba.baidu.com/p/4120477339<br />
@@ -25,7 +25,7 @@
  45 餘香的效果: http://tieba.baidu.com/p/4530060763<br />
 
 
-###**第三章		再次来到王都**
+#**第三章		再次来到王都**
 1 安稳的早上: http://tieba.baidu.com/p/3950761711<br />
 2 佣人们的茶话: http://tieba.baidu.com/p/3989194884<br />
 3 王都旅行计画: http://tieba.baidu.com/p/4009917606<br />
@@ -68,7 +68,7 @@
 番外編 王様: http://tieba.baidu.com/p/4504104385a<br />
 
 
-###**第四章		永远的契约**
+#**第四章		永远的契约**
 1 帰り着いた場所で: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=87395634391#87395634391<br />
 2 罵倒と感謝: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=87464131581#87464131581<br />
 3 再会とすれ違い: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=87586151319#87586151319<br />
@@ -200,7 +200,7 @@
 番外篇 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
 
 
-###**第五章		刻画历史的群星**
+#**第五章		刻画历史的群星**
 1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 <br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
@@ -208,7 +208,7 @@
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
 
 
-###**第六章		记忆的回廊**
+#**第六章		记忆的回廊**
 1 龙车归途路: http://tieba.baidu.com/p/4726164874<br />
 2 他相应的款待: http://tieba.baidu.com/p/4728979724<br />
 3 少女的牢笼: http://tieba.baidu.com/p/4736186036<br />
@@ -220,5 +220,5 @@
 リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536<br />
 
 
-###符号:
+#符号:
 <FIXME> 待修正
