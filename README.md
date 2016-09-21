@@ -31,7 +31,7 @@
 3. 王都旅行计画: http://tieba.baidu.com/p/4009917606
 4. 旅行出発前途多難: http://tieba.baidu.com/p/4464992859
 24. 決闘の顛末: http://tieba.baidu.com/p/4644477730
-幕間 騎士たちの思惑: http://tieba.baidu.com/p/4611290014
+幕间 騎士たちの思惑: http://tieba.baidu.com/p/4611290014
 41. 幼稚的交涉: http://tieba.baidu.com/p/4379244403
 42. 決裂之夜: http://tieba.baidu.com/p/4387728409
 43. 豚の欲望: http://tieba.baidu.com/p/4397474780?see_lz=1&pid=85270894794#85270894794
@@ -61,10 +61,10 @@
 82. 名为爱的福音: http://tieba.baidu.com/p/4599959731
 83. 对答: http://tieba.baidu.com/p/4599974252
 84. 只是那样而已的故事: http://tieba.baidu.com/p/4601342829<br />
-幕間 竜車での一幕: http://tieba.baidu.com/p/4512597303<br />
+幕间 竜車での一幕: http://tieba.baidu.com/p/4512597303<br />
 断章 菜月・雷姆: http://tieba.baidu.com/p/4451132236<br />
-幕間 我開動了: http://tieba.baidu.com/p/4515694686<br />
-幕間 それぞれの、誓い: http://tieba.baidu.com/p/4578723987<br />
+幕间 我開動了: http://tieba.baidu.com/p/4515694686<br />
+幕间 それぞれの、誓い: http://tieba.baidu.com/p/4578723987<br />
 番外編 王様: http://tieba.baidu.com/p/4504104385a<br />
 
 
@@ -149,7 +149,7 @@
 77. 孤身一人的……: http://tieba.baidu.com/p/4628053295
 78. 欲哭的声音: http://tieba.baidu.com/p/4629726365
 79. 梦的终结: http://tieba.baidu.com/p/4631006740<br />
-幕間 宾客散去: http://tieba.baidu.com/p/4642203635
+幕间 宾客散去: http://tieba.baidu.com/p/4642203635
 80. ざらついた舌: http://tieba.baidu.com/p/4673809891
 81. 光明: http://tieba.baidu.com/p/4713192511
 82. 尔虞我诈: http://tieba.baidu.com/p/4713376698
