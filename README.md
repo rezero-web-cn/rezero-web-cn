@@ -1,5 +1,5 @@
 ##日文WEB版生肉链接 http://ncode.syosetu.com/n2267be/
-##日文WEB版生肉纵书(PDF) https://github.com/rezerowebcn/rezero-web-cn/tree/testing
+##PDF http://pdfnovels.net/n2267be/main.pdf
 ####*若有意愿翻译的人，欢迎加QQ群417670611*
 
 #**第一章		怒涛般的第一天**
