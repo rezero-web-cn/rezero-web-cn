@@ -81,13 +81,13 @@
 10 知識欲の権化: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=92826592369#92826592369<br />
 11 傲慢で怠惰な憤怒: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=94165744664#94165744664<br />
 12 お茶会の土産: http://tieba.baidu.com/p/4620592382<br />
-13 ロズワールの思惑: tieba.baidu.com/p/4472374288<br />
+13 ロズワールの思惑: http://tieba.baidu.com/p/4472374288?see_lz=1&pid=96100874915#96100874915<br />
 14 回答疑问: http://tieba.baidu.com/p/4597344852<br />
 15 资格与试炼: http://tieba.baidu.com/p/4605372404<br />
-16 菜月家的早晨: [上](http://tieba.baidu.com/p/4472374288?see_lz=1&pid=96100874915#96100874915) [下](http://tieba.baidu.com/p/4621237541?pid=94212131128#94212131128)<br />
-17 恋爱话题: http://tieba.baidu.com/p/4621237541?see_lz=1&pid=94260358833#94260358833<br />
-18 父子: http://tieba.baidu.com/p/4621237541?see_lz=1&pid=94471756358#94471756358<br />
-19 作业: http://tieba.baidu.com/p/4621237541?see_lz=1&pid=94882153112#94882153112<br />
+16 菜月家的早晨: [上](http://tieba.baidu.com/p/4621237541) [下](http://tieba.baidu.com/p/4621237541?pid=94212131128#94212131128)<br />
+17 恋爱话题: http://tieba.baidu.com/p/4621237541?pid=94260358833#94260358833
+18 父子: http://tieba.baidu.com/p/4621237541?pid=94471756358#94471756358
+19 作业: http://tieba.baidu.com/p/4621237541?pid=94882153112#94882153112
 20 試験結果: http://tieba.baidu.com/p/4674982553<br />
 21 決意新たに: http://tieba.baidu.com/p/4631595671<br />
 22 弱さ: http://tieba.baidu.com/p/4642759626<br />
