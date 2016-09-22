@@ -25,6 +25,11 @@
  45 餘香的效果: http://tieba.baidu.com/p/4530060763<br />
 
 
+#**番外編　Oneday**
+中毒症状: http://tieba.baidu.com/p/4572068674?see_lz=1&pid=90417813399#90417813399<br />
+第一次蛋黄酱骚动: http://tieba.baidu.com/p/4572068674?see_lz=1&pid=90426214405#90426214405<br />
+
+
 #**第三章		再次来到王都**
 1 安稳的早上: http://tieba.baidu.com/p/3950761711<br />
 2 佣人们的茶话: http://tieba.baidu.com/p/3989194884<br />
