@@ -177,7 +177,7 @@
 97 黎明之前: http://tieba.baidu.com/p/4741799378<br />
 98 余温渐消的床铺: http://tieba.baidu.com/p/4743470238<br />
 99 封闭之所，孤身一人: http://tieba.baidu.com/p/4747116717<br />
-100 埋藏于尘埃中的回忆 http://tieba.baidu.com/p/4780200138<br />
+100 埋藏于尘埃中的回忆 (快车)[http://tieba.baidu.com/p/4780200138] (好车)[http://tieba.baidu.com/p/4791235703]<br />
 101 θ其一: http://tieba.baidu.com/p/4748687220<br />
 102 记忆中没有的回忆: http://tieba.baidu.com/p/4751031565<br />
 103 圣域的起始与崩坏的开端: http://tieba.baidu.com/p/4752723405<br />
