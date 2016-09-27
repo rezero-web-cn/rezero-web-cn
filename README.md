@@ -190,6 +190,7 @@
 110 信じる理由: http://tieba.baidu.com/p/4779047325<br />
 111 卡菲尔的结界: http://tieba.baidu.com/p/4759215767<br />
 112 拒绝软弱的本能: http://tieba.baidu.com/p/4759224439<br />
+113 奎因之石靠一个人是没法搬动的: http://tieba.baidu.com/p/4755216480?pid=96942313188#96942313188<br />
 114 将谎言化为祈愿: http://tieba.baidu.com/p/4762482470<br />
 115 青梅竹马的女人面前抬不起头: http://tieba.baidu.com/p/4780619949<br />
 116 祖母と、母と、姉と、孫で、息子で、弟で: http://tieba.baidu.com/p/4792580748?pid=98172861297#98172861297<br />
