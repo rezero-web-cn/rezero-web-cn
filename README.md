@@ -200,6 +200,7 @@
 120 艾利奥尔大森林的永久冻土: http://tieba.baidu.com/p/4743585559<br />
 121 请帮帮他: [我好像听到了引擎的声音!](http://tieba.baidu.com/p/4795428477)<br />
 122 咆哮的再會: http://tieba.baidu.com/p/4764926301<br />
+124 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
 128 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218<br />
 129 ——选我吧: http://tieba.baidu.com/p/4612351520<br />
