@@ -206,6 +206,7 @@
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
 128 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218<br />
 129 ——选我吧: http://tieba.baidu.com/p/4612351520<br />
+130 雪の颜型: [快车](http://tieba.baidu.com/p/4803391135?see_lz=1)<br />
 幕间 エミリア陣営・魔人・精霊・精霊使い: http://tieba.baidu.com/p/4779244674?pid=97731475961<br />
 番外編 ①『ある姉妹の関係』: http://tieba.baidu.com/p/4781728579?pn=1<br />
 番外編 ②『幼い魂と見守る者』: http://tieba.baidu.com/p/4784669815?pid=97918433654&cid=0#97918433654<br />
