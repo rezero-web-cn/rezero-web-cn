@@ -219,6 +219,7 @@
 
 #**第五章		刻画历史的群星**
 1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 <br />
+2 虚伪的血统: http://tieba.baidu.com/p/4804583842?see_lz=1&pid=98573529073#98573529073<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
