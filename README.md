@@ -225,6 +225,7 @@
 13 祥和的晚餐: [未完成](http://tieba.baidu.com/p/4806885303?see_lz=1&pid=98638545768#98638545768)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
+48 哪天有了喜欢的人: http://tieba.baidu.com/p/4709745191?pid=98563740827#98563740827<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
 73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401<br />
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
