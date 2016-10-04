@@ -222,7 +222,7 @@
 1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 <br />
 2 虚伪的血统: http://tieba.baidu.com/p/4804583842?see_lz=1&pid=98573529073#98573529073<br />
 3 各自的见解: http://tieba.baidu.com/p/4807522269?see_lz=1<br />
-13 祥和的晚餐: http://tieba.baidu.com/p/4806885303?see_lz=1&pid=98638545768#98638545768<br />
+13 祥和的晚餐: [未完成](http://tieba.baidu.com/p/4806885303?see_lz=1&pid=98638545768#98638545768)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
