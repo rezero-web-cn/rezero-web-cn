@@ -240,6 +240,8 @@
 6 ユークリウスの銘: http://tieba.baidu.com/p/4523232167<br />
 7 以沙海为目标: http://tieba.baidu.com/p/4760295505<br />
 8 砂丘の洗礼: http://tieba.baidu.com/p/4767579505<br />
+19 賢者の行方: http://tieba.baidu.com/p/4764229566?see_lz=1<br />
+20 夏乌拉≠贤者=弗琉盖尔: http://tieba.baidu.com/p/4809781348?see_lz=1&pid=98720666235#98720666235<br />
 リゼロEX 菜月·利格鲁: http://tieba.baidu.com/p/4592928685<br />
 リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536<br />
 
