@@ -203,6 +203,7 @@
 123A 猎肠者VS圣域的盾: [快车](http://tieba.baidu.com/p/4802546636?see_lz=1)<br />
 123B 反映在水面上的幸福: [快车](http://tieba.baidu.com/p/4806227865?see_lz=1)<br />
 124A 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
+124B 倒映在镜子中的你: http://tieba.baidu.com/p/4812304948?see_lz=1<br />
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
 127 罗兹瓦尔府的最后一日: http://tieba.baidu.com/p/4807674227?see_lz=1<br />
