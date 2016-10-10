@@ -224,6 +224,7 @@
 1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 <br />
 2 虚伪的血统: http://tieba.baidu.com/p/4804583842?see_lz=1&pid=98573529073#98573529073<br />
 3 各自的见解: http://tieba.baidu.com/p/4807522269?see_lz=1<br />
+4 旅行途中: http://tieba.baidu.com/p/4816641464?see_lz=1<br />
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
 19 剧场型恶意: http://tieba.baidu.com/p/4813991956?see_lz=1<br />
