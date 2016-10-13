@@ -200,11 +200,12 @@
 120 艾利奥尔大森林的永久冻土: http://tieba.baidu.com/p/4743585559<br />
 121 请帮帮他: http://tieba.baidu.com/p/4795428477?see_lz=1&pid=98300530387#98300530387<br />
 122 咆哮的再會: http://tieba.baidu.com/p/4764926301<br />
-123A 猎肠者VS圣域的盾: [快车](http://tieba.baidu.com/p/4802546636?see_lz=1)<br />
+123 猎肠者VS圣域的盾: [快车](http://tieba.baidu.com/p/4802546636?see_lz=1)<br />
 123B 反映在水面上的幸福: [快车](http://tieba.baidu.com/p/4806227865?see_lz=1)<br />
-124A 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
+124 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
 124B 倒映在镜子中的你: http://tieba.baidu.com/p/4812304948?see_lz=1<br />
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
+125B 从复仇开始: http://tieba.baidu.com/p/4819840496?see_lz=1<br />
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
 127 罗兹瓦尔府的最后一日: http://tieba.baidu.com/p/4807674227?see_lz=1<br />
 128 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218<br />
@@ -219,6 +220,7 @@
 番外編 ⑥『もう一つのやり残し』: [我听见了引擎的声音！](http://tieba.baidu.com/p/4801857560)<br />
 番外編 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
 
+B线是艾米莉娅刷试炼的情况。
 
 #**第五章		刻画历史的群星**
 1 事情的起头总是由到访者开始: http://tieba.baidu.com/p/4779269164 <br />
