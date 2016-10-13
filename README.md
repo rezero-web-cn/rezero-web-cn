@@ -230,11 +230,14 @@ B线是艾米莉娅刷试炼的情况。
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
 19 剧场型恶意: http://tieba.baidu.com/p/4813991956?see_lz=1<br />
+29 华丽的虎: [我听见了引擎的声音！](http://tieba.baidu.com/p/4819514785)<br />
+30 月下的虎与猫: [我听见了引擎的声音！](http://tieba.baidu.com/p/4819514785)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
 48 哪天有了喜欢的人: http://tieba.baidu.com/p/4709745191?pid=98563740827#98563740827<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
 73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401<br />
+77 无名的骑士: [我听见了引擎的声音！](http://tieba.baidu.com/p/4820559080)<br />
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
 
 
