@@ -177,7 +177,7 @@
 97 黎明之前: http://tieba.baidu.com/p/4741799378<br />
 98 余温渐消的床铺: http://tieba.baidu.com/p/4743470238<br />
 99 封闭之所，孤身一人: http://tieba.baidu.com/p/4747116717<br />
-100 埋藏于尘埃中的回忆 [临时合作翻译](http://tieba.baidu.com/p/4780200138) [好车](http://tieba.baidu.com/p/4791235703)<br />
+100 埋藏于尘埃中的回忆 [临时合作](http://tieba.baidu.com/p/4780200138) [正式](http://tieba.baidu.com/p/4791235703)<br />
 101 θ其一: http://tieba.baidu.com/p/4748687220<br />
 102 记忆中没有的回忆: http://tieba.baidu.com/p/4751031565<br />
 103 圣域的起始与崩坏的开端: http://tieba.baidu.com/p/4752723405<br />
@@ -217,7 +217,7 @@
 番外編 ③『美少女与美幼女与美老女』: http://tieba.baidu.com/p/4790979989<br />
 番外編 ④『誕生、エミリア陣営内政官殿』: http://tieba.baidu.com/p/4795011304<br />
 番外編 ⑤『安妮罗洁的陷阱与姐弟关系』: http://tieba.baidu.com/p/4796994062?pid=98326441122#98326441122<br />
-番外編 ⑥『もう一つのやり残し』: [我听见了引擎的声音！](http://tieba.baidu.com/p/4801857560)<br />
+番外編 ⑥『もう一つのやり残し』: [未完](http://tieba.baidu.com/p/4801857560)<br />
 番外編 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
 
 B线是艾米莉娅刷试炼的情况。
@@ -227,17 +227,18 @@ B线是艾米莉娅刷试炼的情况。
 2 虚伪的血统: http://tieba.baidu.com/p/4804583842?see_lz=1&pid=98573529073#98573529073<br />
 3 各自的见解: http://tieba.baidu.com/p/4807522269?see_lz=1<br />
 4 旅行途中: http://tieba.baidu.com/p/4816641464?see_lz=1<br />
+11 意外な再会、来るべき再会、意図せぬ再会: [未完](http://tieba.baidu.com/p/4822133328?see_lz=1)<br />
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
 19 剧场型恶意: http://tieba.baidu.com/p/4813991956?see_lz=1<br />
-29 华丽的虎: [我听见了引擎的声音！](http://tieba.baidu.com/p/4819514785)<br />
-30 月下的虎与猫: [我听见了引擎的声音！](http://tieba.baidu.com/p/4819514785)<br />
+29 华丽的虎: [未完](http://tieba.baidu.com/p/4819514785)<br />
+30 月下的虎与猫: [未完](http://tieba.baidu.com/p/4819514785)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
 48 哪天有了喜欢的人: http://tieba.baidu.com/p/4709745191?pid=98563740827#98563740827<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
 73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401<br />
-77 无名的骑士: [我听见了引擎的声音！](http://tieba.baidu.com/p/4820559080)<br />
+77 无名的骑士: [未完](http://tieba.baidu.com/p/4820559080)<br />
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
 
 
