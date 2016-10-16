@@ -247,6 +247,7 @@ B线是艾米莉娅刷试炼的情况。
 1 龙车归途路: http://tieba.baidu.com/p/4726164874<br />
 2 他相应的款待: http://tieba.baidu.com/p/4728979724<br />
 3 少女的牢笼: http://tieba.baidu.com/p/4736186036<br />
+4 把你带出的理由: http://tieba.baidu.com/p/4759464526?see_lz=1<br />
 5 各自的不安: http://tieba.baidu.com/p/4745236468<br />
 6 ユークリウスの銘: http://tieba.baidu.com/p/4523232167<br />
 7 以沙海为目标: http://tieba.baidu.com/p/4760295505<br />
