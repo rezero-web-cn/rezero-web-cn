@@ -200,8 +200,8 @@
 120 艾利奥尔大森林的永久冻土: http://tieba.baidu.com/p/4743585559<br />
 121 请帮帮他: http://tieba.baidu.com/p/4795428477?see_lz=1&pid=98300530387#98300530387<br />
 122 咆哮的再會: http://tieba.baidu.com/p/4764926301<br />
-123 猎肠者VS圣域的盾: [快车](http://tieba.baidu.com/p/4802546636?see_lz=1)<br />
-123B 反映在水面上的幸福: [快车](http://tieba.baidu.com/p/4806227865?see_lz=1)<br />
+123 猎肠者VS圣域的盾: http://tieba.baidu.com/p/4802546636?see_lz=1<br />
+123B 反映在水面上的幸福: http://tieba.baidu.com/p/4806227865?see_lz=1<br />
 124 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
 124B 倒映在镜子中的你: http://tieba.baidu.com/p/4812304948?see_lz=1<br />
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
@@ -218,7 +218,7 @@
 番外編 ③『美少女与美幼女与美老女』: http://tieba.baidu.com/p/4790979989<br />
 番外編 ④『誕生、エミリア陣営内政官殿』: http://tieba.baidu.com/p/4795011304<br />
 番外編 ⑤『安妮罗洁的陷阱与姐弟关系』: http://tieba.baidu.com/p/4796994062?pid=98326441122#98326441122<br />
-番外編 ⑥『もう一つのやり残し』: [未完](http://tieba.baidu.com/p/4801857560)<br />
+番外編 ⑥『もう一つのやり残し』: http://tieba.baidu.com/p/4801857560<br />
 番外編 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
 
 B线是艾米莉娅刷试炼的情况。
