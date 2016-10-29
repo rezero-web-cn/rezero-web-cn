@@ -209,6 +209,7 @@
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
 126B 次はきっとお茶会を: http://tieba.baidu.com/p/4823766447?see_lz=1<br />
 127 罗兹瓦尔府的最后一日: http://tieba.baidu.com/p/4807674227?see_lz=1<br />
+127B もういいなんて: http://tieba.baidu.com/p/4836474874?see_lz=1<br />
 128 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218<br />
 129 ——选我吧: http://tieba.baidu.com/p/4612351520<br />
 130 雪の颜型: [快车](http://tieba.baidu.com/p/4803391135?see_lz=1)<br />
@@ -235,6 +236,7 @@ B线是艾米莉娅刷试炼的情况。
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
 19 剧场型恶意: http://tieba.baidu.com/p/4813991956?see_lz=1<br />
+20 共相高涨的情绪: http://tieba.baidu.com/p/4840787646?see_lz=1<br />
 29 华丽的虎: [未完](http://tieba.baidu.com/p/4819514785)<br />
 30 月下的虎与猫: [未完](http://tieba.baidu.com/p/4819514785)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
