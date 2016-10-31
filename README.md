@@ -247,7 +247,7 @@ B线是艾米莉娅刷试炼的情况。
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
 73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401<br />
 76 普利斯提拉攻防战成果3: http://tieba.baidu.com/p/4824969069?see_lz=1&pid=99270763554#99270763554<br />
-77 无名的骑士: [未完](http://tieba.baidu.com/p/4820559080)<br />
+77 无名的骑士: http://tieba.baidu.com/p/4830986023?see_lz=1<br />
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
 
 
