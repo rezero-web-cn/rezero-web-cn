@@ -246,6 +246,7 @@ B线是艾米莉娅刷试炼的情况。
 47 都市奪還攻略前哨: http://tieba.baidu.com/p/4709745191?see_lz=1&pid=98439698237#98439698237<br />
 48 哪天有了喜欢的人: http://tieba.baidu.com/p/4709745191?pid=98563740827#98563740827<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
+59 雷格鲁斯・柯尼亚斯: http://tieba.baidu.com/p/4855096630?see_lz=1<br />
 73 “特蕾西亚・范・阿斯特雷亚”: http://tieba.baidu.com/p/4773559401<br />
 76 普利斯提拉攻防战成果3: http://tieba.baidu.com/p/4824969069?see_lz=1&pid=99270763554#99270763554<br />
 77 无名的骑士: http://tieba.baidu.com/p/4830986023?see_lz=1<br />
