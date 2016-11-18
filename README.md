@@ -240,6 +240,7 @@ B线是艾米莉娅刷试炼的情况。
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
 19 剧场型恶意: http://tieba.baidu.com/p/4813991956?see_lz=1<br />
 20 共相高涨的情绪: http://tieba.baidu.com/p/4840787646?see_lz=1<br />
+21 最佳的解法: http://tieba.baidu.com/p/4859375015?see_lz=1<br />
 29 华丽的虎: [未完](http://tieba.baidu.com/p/4819514785)<br />
 30 月下的虎与猫: [未完](http://tieba.baidu.com/p/4819514785)<br />
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
