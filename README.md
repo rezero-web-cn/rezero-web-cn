@@ -223,8 +223,8 @@
 番外編 ⑤『安妮罗洁的陷阱与姐弟关系』: http://tieba.baidu.com/p/4796994062?pid=98326441122#98326441122<br />
 番外編 ⑥『もう一つのやり残し』: http://tieba.baidu.com/p/4801857560<br />
 番外編 〆【月下，胡乱的舞步】: http://tieba.baidu.com/p/4787477757?pid=97997098115&cid=0#97997098115<br />
-番外編 Oneday Ⅱ 特别篇 上 交错的宿愿: [未完](http://tieba.baidu.com/p/4839457596?see_lz=1)<br />
-番外編 Oneday Ⅱ 特别篇 下 王选前日谈: [未完](http://tieba.baidu.com/p/4839457596?see_lz=1)<br />
+番外編 Oneday Ⅱ 特别篇 上 交错的宿愿: http://tieba.baidu.com/p/4839457596?see_lz=1<br />
+番外編 Oneday Ⅱ 特别篇 下 王选前日谈: http://tieba.baidu.com/p/4839457596?see_lz=1<br />
 番外編 EX蝴蝶之梦: http://tieba.baidu.com/p/4842972996?see_lz=1<br />
 
 B线是艾米莉娅刷试炼的情况。
