@@ -201,7 +201,7 @@
 121 请帮帮他: http://tieba.baidu.com/p/4795428477?see_lz=1&pid=98300530387#98300530387<br />
 122 咆哮的再會: http://tieba.baidu.com/p/4764926301<br />
 123 猎肠者VS圣域的盾: [原版](http://tieba.baidu.com/p/4802546636?see_lz=1) [校对](http://tieba.baidu.com/p/4847902006?see_lz=1)<br />
-123B 反映在水面上的幸福: http://tieba.baidu.com/p/4806227865?see_lz=1<br />
+123B 反映在水面上的幸福: [原版](http://tieba.baidu.com/p/4806227865?see_lz=1) [校对](http://tieba.baidu.com/p/4851468806?see_lz=1)<br />
 124 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
 124B 倒映在镜子中的你: http://tieba.baidu.com/p/4812304948?see_lz=1<br />
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
