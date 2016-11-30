@@ -235,6 +235,7 @@ B线是艾米莉娅刷试炼的情况。
 3 各自的见解: http://tieba.baidu.com/p/4807522269?see_lz=1<br />
 4 旅行途中: http://tieba.baidu.com/p/4816641464?see_lz=1<br />
 5 水門都市プリステラ: http://tieba.baidu.com/p/4829803936?see_lz=1<br />
+9 歌姬的价值: http://tieba.baidu.com/p/4873680394?see_lz=1<br />
 11 意外な再会、来るべき再会、意図せぬ再会: http://tieba.baidu.com/p/4822133328?see_lz=1<br />
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
