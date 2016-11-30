@@ -207,7 +207,7 @@
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
 125B 从复仇开始: http://tieba.baidu.com/p/4819840496?see_lz=1<br />
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
-126B 次はきっとお茶会を: http://tieba.baidu.com/p/4823766447?see_lz=1<br />
+126B 次はきっとお茶会を: [原版](http://tieba.baidu.com/p/4823766447?see_lz=1) [校对](http://tieba.baidu.com/p/4877996425?see_lz=1)<br />
 127 罗兹瓦尔府的最后一日: http://tieba.baidu.com/p/4807674227?see_lz=1<br />
 127B もういいなんて: http://tieba.baidu.com/p/4836474874?see_lz=1<br />
 128 『血肉と臓物まで愛して』: http://tieba.baidu.com/p/4782776218<br />
