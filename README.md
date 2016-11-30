@@ -252,6 +252,7 @@ B线是艾米莉娅刷试炼的情况。
 リゼロＥＸ　『フォーチュンロール・ラプソディ』: http://tieba.baidu.com/p/4702598105<br />
 リゼロＥＸ　『学園リゼロ！　１時間目！』: http://tieba.baidu.com/p/4551525183<br />
 リゼロＥＸ　『学園リゼロ！　2時間目！』: http://tieba.baidu.com/p/4687357175<br />
+幕间 结对的条件: http://tieba.baidu.com/p/4868547634?see_lz=1<br />
 
 
 #**第六章		记忆的回廊**
