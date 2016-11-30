@@ -203,7 +203,7 @@
 123 猎肠者VS圣域的盾: [原版](http://tieba.baidu.com/p/4802546636?see_lz=1) [校对](http://tieba.baidu.com/p/4847902006?see_lz=1)<br />
 123B 反映在水面上的幸福: [原版](http://tieba.baidu.com/p/4806227865?see_lz=1) [校对](http://tieba.baidu.com/p/4851468806?see_lz=1)<br />
 124 给我听好，笨蛋: http://tieba.baidu.com/p/4799044453<br />
-124B 倒映在镜子中的你: http://tieba.baidu.com/p/4812304948?see_lz=1<br />
+124B 倒映在镜子中的你: [原版](http://tieba.baidu.com/p/4812304948?see_lz=1) [校对](https://tieba.baidu.com/p/4867751884?see_lz=1)<br />
 125 罗兹瓦尔宅邸攻防战: http://tieba.baidu.com/p/4799319127<br />
 125B 从复仇开始: http://tieba.baidu.com/p/4819840496?see_lz=1<br />
 126 漆黑森林之王，基尔提拉乌的袭击: http://tieba.baidu.com/p/4751632768<br />
