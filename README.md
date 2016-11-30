@@ -268,6 +268,7 @@ B线是艾米莉娅刷试炼的情况。
 15 沙子上凋零着: http://tieba.baidu.com/p/4854098912?see_lz=1<br />
 19 賢者の行方: http://tieba.baidu.com/p/4764229566?see_lz=1<br />
 20 夏乌拉≠贤者=弗琉盖尔: http://tieba.baidu.com/p/4809781348?see_lz=1&pid=98720666235#98720666235<br />
+24 『へそ曲がりの試験官』: http://tieba.baidu.com/p/4878170944?see_lz=1&pid=100719062163#100719062163<br />
 リゼロEX 菜月·利格鲁: http://tieba.baidu.com/p/4592928685<br />
 リゼロEX 从零开始反复的异世界生活: http://tieba.baidu.com/p/4502132536<br />
 
