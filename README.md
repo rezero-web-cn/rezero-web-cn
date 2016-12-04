@@ -235,6 +235,7 @@ B线是艾米莉娅刷试炼的情况。
 3 各自的见解: http://tieba.baidu.com/p/4807522269?see_lz=1<br />
 4 旅行途中: http://tieba.baidu.com/p/4816641464?see_lz=1<br />
 5 水門都市プリステラ: http://tieba.baidu.com/p/4829803936?see_lz=1<br />
+6 两位精灵骑士，强欲商人和无欲天使: http://tieba.baidu.com/p/4849814077?see_lz=1&pid=99972686025#99972686025<br />
 7 『業の深い男へ続く船旅』: http://tieba.baidu.com/p/4866650675?see_lz=1&pid=100538918927#100538918927<br />
 8 晕船的同伴: http://tieba.baidu.com/p/4884961722?see_lz=1<br />
 9 歌姬的价值: http://tieba.baidu.com/p/4873680394?see_lz=1<br />
