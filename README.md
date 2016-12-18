@@ -239,6 +239,7 @@ B线是艾米莉娅刷试炼的情况。
 7 『業の深い男へ続く船旅』: http://tieba.baidu.com/p/4866650675?see_lz=1&pid=100538918927#100538918927<br />
 8 晕船的同伴: http://tieba.baidu.com/p/4884961722?see_lz=1<br />
 9 歌姬的价值: http://tieba.baidu.com/p/4873680394?see_lz=1<br />
+10 水之都市的归途: http://tieba.baidu.com/p/4893424686?see_lz=1<br />
 11 意外な再会、来るべき再会、意図せぬ再会: http://tieba.baidu.com/p/4822133328?see_lz=1<br />
 13 祥和的晚餐: http://tieba.baidu.com/p/4810181914?see_lz=1<br />
 14 月下的剑鬼: http://tieba.baidu.com/p/4811172082?see_lz=1<br />
